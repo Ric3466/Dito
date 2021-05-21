@@ -2,5 +2,4 @@
 
 Idk what to write here ;-;
 
-Sed
-;-;
+Bye
